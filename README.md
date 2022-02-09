@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Myra-ux
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate with anyone who wouldl ike to help me
+- 💞️ I’m looking to collaborate with anyone who would like to help me
 - 📫 How to reach me coloredsocks1111@gmail.com
 
 <!---
